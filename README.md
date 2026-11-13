@@ -1,1 +1,1 @@
-# NF1.UD4.-Compartici-de-recursos
+# NF1.UD4.-Compartició de recursos.
